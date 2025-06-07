@@ -16,7 +16,7 @@ Tutorial:
   
 ## Contact
 
-You can contact me at teleram my username is [@yoruakio](https://t.me/yoruakio) or join my discord server [Nakai Community](https://discord.com/invite/ESsBxptJqr).
+You can contact me at teleram my username is [@yankurox](https://t.me/yankurox)
 
 ## License
 
